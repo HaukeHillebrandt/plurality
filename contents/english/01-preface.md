@@ -22,6 +22,8 @@ Life, a ripple of atoms — cosmic stardust — flourishes with infinite diversi
 
 Within the atomic microcosm, a 'string' vibrates, much like a symphony. Those of us resonating with Plurality can foster collaborative diversity through interoperable coexistence. This book is an invitation to counter totalitarianism, avert extinction, and free the future — together.
 
+Test.
+
 ---
 
 > When we see "internet of things," let's make it an **internet of beings**.
@@ -33,5 +35,3 @@ Within the atomic microcosm, a 'string' vibrates, much like a symphony. Those of
 > When we see "user experience," let's make it **about human experience**.
 
 > When we hear “the singularity is near” — let us remember: The **Plurality** is here.
-
-
